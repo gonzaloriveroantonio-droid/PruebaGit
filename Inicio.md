@@ -11,7 +11,7 @@ _Hola_
 >faljkdsfhajksdfhalhjdksf
 
 >sscasdvasdcvasdf
-2+2 es igual a cuatro
+2+2 es igual a 33
 
 https://www.warhammer.com/es-ES/explore/warhammer-40000?srsltid=AYCX9vI_XJXwzEutIhteW-70dkZTo0xVLGXwA6y_u5jW7idp93nhIA3_
 
