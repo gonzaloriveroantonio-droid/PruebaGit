@@ -9,7 +9,7 @@ _Hola_
 
 ---
 >faljkdsfhajksdfhalhjdksf
->sdfgsdofigodsfgi
+
 >sscasdvasdcvasdf
 
 <prueba><prueba><prueba><prueba><prueba><prueba><prueba>
